@@ -1,1 +1,1 @@
-hi thereeee this an actual normal readme anyway I'm sky and remember always int when it's nit even in my name oh yh this account is only for pony town 
+so here ur reading how much I love maki she is best character in danganronpa and how strong she is plz I can't even with her I want her so bad
